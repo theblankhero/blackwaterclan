@@ -1,2 +1,2 @@
 # blackwaterclan
-хай
+Никита хуй соси
